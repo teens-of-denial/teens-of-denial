@@ -13,7 +13,7 @@
   19 with a whole lot of nothing going on. i like animals and music and taking big licks of my oversized lollipop
 </p>
 <p align="center">
-  as for ponytown, don't be afraid of me! my only ask is to have common decency. too many people are cruel on the internet, won't you fall out of the line?
+  as for ponytown, don't be afraid of me! my only ask is to have common decency. too many people are cruel online
 </p>
   <h5 align="center">
  
