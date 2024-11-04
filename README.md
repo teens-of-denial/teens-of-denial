@@ -1,5 +1,5 @@
 <p align="center">
-<a title="TEENS OF STYLE" href=https://open.spotify.com/album/7s2vwXfI8Ki49zYIfTTkRT?si=5EXB5WkAQEyB7AOkO6Dl-A><img src="https://file.garden/Zdu77rwq23DtX9qX/aaaaa.png" /></a>
+<a title="TEENS OF DENIAL" href=https://open.spotify.com/album/3KpYyDP8q8sUBxatHaYEsP?si=KqcvuiW4TAuUIUsawAREig><img src="https://file.garden/Zdu77rwq23DtX9qX/aaaaa.png" /></a>
 <p align="center">
   <h5 align="center">
  
