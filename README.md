@@ -3,7 +3,7 @@
 <p align="center">
   <h5 align="center">
  
-<i>i know that i's a lot to remember, says someone</i>
+<i>i know that it's a lot to remember, says someone</i>
 </p>
 
 </h5>
