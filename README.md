@@ -32,5 +32,7 @@
 <summary></summary>
 <p align="center">
 <a title="TEENS OF DENIAL" href=https://open.spotify.com/album/3KpYyDP8q8sUBxatHaYEsP?si=KqcvuiW4TAuUIUsawAREig><img src="https://file.garden/Zdu77rwq23DtX9qX/20241026_181747.jpg" width="544" height="541"></a>
+<p align="center"> <p align="center">
+<a title="me and liv" href=https://file.garden/Zdu77rwq23DtX9qX/eminem.png><img src="https://file.garden/Zdu77rwq23DtX9qX/eminem.png" width="544" height="541"></a>
 <p align="center">
 </details>
