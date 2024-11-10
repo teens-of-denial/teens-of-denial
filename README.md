@@ -15,6 +15,9 @@
 <p align="center">
   as for ponytown, don't be afraid of me! my only ask is to have common decency. too many people are cruel online
 </p>
+<p align="center">
+  some basic stuffs: i do art! digital/traditional and clay sculpting! i'm also physically disabled + audhd. keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful (i am so sorry) i promise i am not quiet nor shy, just doing something else probably! i really like goats
+</p>
   <h5 align="center">
  
 <i><a href="https://github.com/no-joki">@no-joki</a> is the real one but i wanted a self-indulgent name too</i>
