@@ -16,7 +16,7 @@
   as for ponytown, don't be afraid of me! my only ask is to have common decency. too many people are cruel online
 </p>
 <p align="center">
-  some basic stuffs: i do art! digital/traditional and clay sculpting! i'm also physically disabled + audhd. keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful (i am so sorry) i promise i am not quiet nor shy, just doing something else probably! i really like goats
+  some basic stuffs: i do art! digital/traditional and clay sculpting! i'm pretty new at sculpting, but it's been fun and would love to talk to any sculptors on PT, especially if you use polymer clay! i'm also physically disabled + audhd. keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful (i am so sorry) i promise i am not quiet nor shy, just doing something else probably!
 </p>
   <h5 align="center">
  
