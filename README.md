@@ -1,5 +1,5 @@
 <p align="center">
-<a title="TEENS OF DENIAL" href=https://open.spotify.com/album/3KpYyDP8q8sUBxatHaYEsP?si=KqcvuiW4TAuUIUsawAREig><img src="https://file.garden/Zdu77rwq23DtX9qX/aaaaa.png" /></a>
+<a title="CALM YOUR ASS DOWN!!!!! FUCK YOU LOOKING CRAZY FOR!!!!!!" href=https://open.spotify.com/album/3KpYyDP8q8sUBxatHaYEsP?si=Dk_MmskkR9OiDZgGgahQEA><img src="https://file.garden/Zdu77rwq23DtX9qX/scapey" width="229" height="234"></a>
 <p align="center">
   <h5 align="center">
  
