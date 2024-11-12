@@ -3,7 +3,7 @@
 <p align="center">
   <h5 align="center">
  
-<i>i know that it's a lot to remember, says someone</i>
+<i>think about yourself for a minute, and you'll find the answer in it, everyone's a freak!</i>
 </p>
 
 </h5>
