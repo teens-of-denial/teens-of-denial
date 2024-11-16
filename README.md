@@ -19,7 +19,7 @@
   some basic stuffs: i do art! digital/traditional and clay sculpting! i'm also physically disabled + audhd. keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful (i am so sorry) i promise i am not quiet nor shy, just doing something else probably!
 </p>
 <p align="center">
-  i have many interests, but most of them focus on art. majority of my attention is focused on ocs, but outside of that, i love exploring symbolism in art, character thought processes, and animated movies as a whole :) ᶦ ᵃˡˢᵒ ˡᶦᵏᵉ ᶜᵃʳ ˢᵉᵃᵗ ʰᵉᵃᵈʳᵉˢᵗ. ᶦ ʷᵒⁿᵈᵉʳ ᶦᶠ ᵃⁿʸᵒⁿᵉ ᵖᶦᶜᵏᵉᵈ ᵘᵖ ᵒⁿ ᵗʰᵃᵗᵎ
+  i have many interests, but most of them focus on art. majority of my attention is focused on ocs, but outside of that, i love exploring symbolism in art, character thought processes, and animated movies as a whole :) ᶦ ᵃˡˢᵒ ˡᶦᵏᵉ ᶜᵃʳ ˢᵉᵃᵗ ʰᵉᵃᵈʳᵉˢᵗ. ᶦ ʷᵒⁿᵈᵉʳ ᶦᶠ ᵃⁿʸᵒⁿᵉ ᵖᶦᶜᵏᵉᵈ ᵘᵖ ᵒⁿ ᵗʰᵃᵗᵎ as for less involved interests, i enjoy circus works, mundane chore-oriented games, and psychology. but please god talk to me about animated movies Where are the animated movie fans on here? you all should watch the breadwinner from cartoon saloon. or paranorman from laika. or robots from bluesky or 9 from hey what studio made 9 again? can they make something similar? Please?
 
 </p>
   <h5 align="center">
