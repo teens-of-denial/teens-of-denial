@@ -23,7 +23,7 @@
   </p>
   <p align="center">
   <h6 align="center">
-  but please god talk to me about animated movies..... where are the animated movie fans on here? you all should watch the breadwinner from cartoon saloon. or paranorman from laika. or robots from bluesky. or 9 from hey what studio made 9 again? can they make something similar? Please?
+  but please god talk to me about animated movies..... where are the animated movie fans on here? you all should watch the breadwinner from cartoon saloon. or paranorman from laika. or robots from bluesky. or 9 from hey what studio made 9 again? can they make something similar? Please? (focus features.. go watch it!)
 
 </p>
   <h5 align="center">
