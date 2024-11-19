@@ -42,7 +42,7 @@
 <p align="center"><details>
 <summary></summary>
   <h6 align="center">
-  i block very easily. i play ponytown to talk to like-minded people and have fun with friends.. if we were never going to talk in the first place, it don't matter! but i mainly block over 3 things:
+  i block very easily. i play ponytown to talk to like-minded people and have fun with friends.. if we were never going to talk in the first place, it don't matter! i am sociable, but by no means do i want to be friends/interact with just anyone. though, i mainly block over 3 things:
 </p>
     <h6 align="center">
       1. mean-spirited, overall vindictive or aggressive 2. profic/proship or "neutral" 3. overly sexual *often* (gooner type humor/"aesthetic"..)
