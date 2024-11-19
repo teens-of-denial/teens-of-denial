@@ -13,7 +13,7 @@
   19 with a whole lot of nothing going on. i like animals and music and taking big licks of my oversized lollipop
 </p>
 <p align="center">
-  as for ponytown, don't be afraid of me! my only ask is to have common decency. too many people are cruel online
+  as for ponytown, don't be afraid of me! my only ask is to have common decency. too many people are cruel online.
 </p>
 <p align="center">
   some basic stuffs: i do art! digital/traditional and clay sculpting! i'm also physically disabled + audhd. keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful (i am so sorry) i promise i am not quiet nor shy, just doing something else probably!
@@ -41,9 +41,16 @@
 </h5>
 <p align="center"><details>
 <summary></summary>
+  <h6 align="center">
+  i block very easily. i play ponytown to talk to like-minded people and have fun with friends.. if we were never going to talk in the first place, it don't matter! but i mainly block over 3 things:
+</p>
+    <h6 align="center">
+      1. mean-spirited, overall vindictive or aggressive 2. profic/proship or "neutral" 3. overly sexual *often* (gooner type humor/"aesthetic"..)
+      </p>
+      <h6 align="center">
+  if any of that bothers you, i recommend you block me.. i am not looking for altercations and i will simply just mute/block and move on. do what is healthy for you :)
+</p>
 <p align="center">
 <a title="TEENS OF DENIAL" href=https://open.spotify.com/album/3KpYyDP8q8sUBxatHaYEsP?si=KqcvuiW4TAuUIUsawAREig><img src="https://file.garden/Zdu77rwq23DtX9qX/20241026_181747.jpg" width="544" height="541"></a>
-<p align="center"> <p align="center">
-<a title="me and liv" href=https://file.garden/Zdu77rwq23DtX9qX/eminem.png><img src="https://file.garden/Zdu77rwq23DtX9qX/eminem.png" width="544" height="541"></a>
 <p align="center">
 </details>
